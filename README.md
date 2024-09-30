@@ -4,7 +4,3 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Only one in my immediate family that is the oldest sibling. 
 
-<!---
-Dragonlord8781/Dragonlord8781 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
