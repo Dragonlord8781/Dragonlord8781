@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dragonlord8781
 - ⭐ I’m currently interested in Monster Hunter 
-- 🌱 I’m currently learning Programming & Video Game Development at GCTC and Botany at Morris High School
+- 🌱 I’m currently learning Programming & Video Game Development at GCTC, Comp II and Introductory Psychology at OSUIT, and Botany at Morris High School
 - 😄 Pronouns: he/him
 - 👨‍👩‍👧‍👦 Immediate Family: My dad, my mom, me, my younger sister, and currently 5 cats
 - ⚡ Fun fact: Only one in my immediate family is the oldest sibling. 
