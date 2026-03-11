@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Programming & Video Game Development at GCTC, Intro to Speech at OSUIT, and Ecology at Morris High School
 - 😄 Pronouns: he/him
 - 👨‍👩‍👧‍👦 Immediate Family: My dad, my mom, me, my younger sister, and currently 5 cats
-- ⚡ Fun fact: Only one in my immediate family is the oldest sibling. 
+- ⚡ Fun fact: Only one in my immediate family that is an oldest sibling. 
 - 🎮 Favorite videogames: Monster Hunter: World, Monster Hunter: Wilds, Minecraft, Sea of Thieves, Halo, and No Man's Sky
