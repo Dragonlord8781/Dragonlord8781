@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dragonlord8781
-- ⭐ I’m currently interested in Monster Hunter 
+- ⭐ I’m currently interested in Dungeons & Dragons 
 - 🌱 I’m currently learning Programming & Video Game Development at GCTC, Intro to Speech at OSUIT, and Ecology at Morris High School
 - 😄 Pronouns: he/him
 - 👨‍👩‍👧‍👦 Immediate Family: My dad, my mom, me, my younger sister, and currently 5 cats
